@@ -1,0 +1,3 @@
+**In a small bowl, combine 8 oz cream cheese, 1/4 cup green onions, 1/4 cup dill, and press in 1 garlic clove. Mash herbs into the cream cheese until incorporated (P.S. This spread keeps well in the fridge for 3-5 days!)**
+**Spread about 1-2 Tbsp of the cream cheese mixture on one side of each bread slice.**
+**Top with lettuce and about 6-8 pieces of salami, or to taste, now slap ’em together and enjoy!**
